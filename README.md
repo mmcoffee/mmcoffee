@@ -1,6 +1,6 @@
 ![Jacq-236-198-Scarlet-Violet-Holo_800x (1)](https://github.com/twilightsword/paldeamutual/assets/127612777/e18336d8-915a-42ac-91a9-450a0860560f)
 
-->  [read my carrd](https://kalosluvr.carrd.co/)
+->  [read my rentry](https://rentry.co/ranpoefan)
 
 ---> [sign my guestbook](https://calems.123guestbook.com/)
 
