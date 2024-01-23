@@ -1,4 +1,4 @@
-![image](https://konachan.com/jpeg/329381ceaf557820b58f26910fc39f70/Konachan.com%20-%20129881%20gumi%20vocaloid.jpg)
+![image](https://i0.wp.com/vocasphere.net/wp-content/uploads/2020/06/gumi-banner.png?fit=1090%2C264&ssl=1)
 
 
 ---> [sign my guestbook](https://calems.123guestbook.com/)
