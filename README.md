@@ -2,7 +2,10 @@
 
 
 --> [sign my guestbook!](https://calems.123guestbook.com/)
+
 ----> [my carrd!](https://mmmmburgr.carrd.co/)
+
+
 **statuses**
 - ⛔ **do not disturb**: i'm online, probably just offtab. i'll check back in often
 - 🌙 **idle**: AFK
