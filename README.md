@@ -3,7 +3,7 @@
 
 --> [sign my guestbook!](https://calems.123guestbook.com/)
 
-----> [my carrd!](https://mmmmburgr.carrd.co/)
+----> [my rentry!](https://rentry.co/krakk0n)
 
 
 **statuses**
