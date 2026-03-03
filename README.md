@@ -6,4 +6,4 @@
 - 🌙 **idle**: AFK/asleep/doing something else
 - 💬 **looking for chat**: available to talk!
 
-i'm friendly, so don't be afraid to interact :) feel free to c+h!
+i'm friendly, so don't be afraid to interact :) C+H __always__ allowed!
