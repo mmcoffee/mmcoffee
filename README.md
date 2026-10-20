@@ -7,3 +7,7 @@
 - 💬 **looking for chat**: available to talk!
 
 i'm friendly, so don't be afraid to interact :) C+H __always__ allowed!
+
+
+i'm a big fan of pkmn, dw, and many other things ,, feel free to talk to me about my interests or anything else c:
+please be patient w me, as i am an anxious person. thank u <3
